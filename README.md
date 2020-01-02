@@ -20,6 +20,10 @@ El~ Primo!
 
 비비비비~~~
 
+## Carl ##
+
+Carl is my name, Geology is my game.
+
 ## 페니 ##
 
 Ho-Hahahaha!!
