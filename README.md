@@ -5,3 +5,10 @@
 ## Colt (콜트) ##
 
 Prime time, baby~!
+
+
+## Jessy (제시) ##
+
+Build and Brawl~!
+
+
