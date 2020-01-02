@@ -4,11 +4,14 @@
 
 ## Colt (콜트) ##
 
-Prime time, baby~!
+Prime time, baby!
 
 
 ## Jessy (제시) ##
 
-Build and Brawl~!
+Build and Brawl!
 
 
+## El Primo ##
+
+El~ Primo!
